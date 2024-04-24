@@ -1,1 +1,1 @@
-# K S Ashwin Kumar
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto&duration=4000&pause=500&color=610CF7&center=true&vCenter=true&random=false&width=435&lines=K+S+Ashwin+Kumar)](https://git.io/typing-svg)
